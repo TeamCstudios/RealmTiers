@@ -1,2 +1,2 @@
 # RealmTiers
-The best multi-media Game.
+Join [The Discord](https://discord.gg/9pcvme)
